@@ -23,5 +23,5 @@ I work remotely and like to travel a lot.
 
 - 📍&nbsp; Current location: Tashkent, Uzbekistan  
 - 💬 &nbsp;Ask me about anything, I am happy to help  
-- 📫&nbsp; How to reach me: [@mustafoburiev](![image](https://github.com/user-attachments/assets/29a94aeb-f853-454b-b1ae-677d544d9367)
+- 📫&nbsp; How to reach me: [@mustafoburiev](https://t.me/MustafoB)
 )
